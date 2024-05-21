@@ -1,2 +1,0 @@
-# daa
-not to copy
